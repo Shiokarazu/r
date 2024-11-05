@@ -1,1 +1,1 @@
-![Help](https://media1.tenor.com/m/Gpqn57711yMAAAAC/off-the-hook-splatoon-2.gif)
+![Help](https://media1.tenor.com/m/uaHGsvr8kYIAAAAd/splatoon-octo.gif)
